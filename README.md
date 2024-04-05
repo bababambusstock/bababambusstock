@@ -1,0 +1,6 @@
+-  I’m @bababambusstock
+-  I’m interested in darknet shit/rust/AI
+-  I’m currently learning rust
+-  You can not reach metally but otherwise you can on Discord
+-  Pronouns: he/not him cause i will never be him
+-  Fun fact: f*ck javascript and modern bloatload web
