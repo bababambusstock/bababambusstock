@@ -1,6 +1,1 @@
--  I’m @bababambusstock
--  I’m interested in darknet shit/rust/AI
--  I’m currently learning rust
--  You can not reach mentally but otherwise you can on Discord: ichduersiees
--  Pronouns: he/not him cause i will never be him
--  f*ck javascript and modern bloatload web
+
